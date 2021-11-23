@@ -24,7 +24,7 @@ dianaskvortsova0@gmail.com
 ## Дополнительное образование:
 _______
 ## Достижения:
-
+![мамочка любимая](https://user-images.githubusercontent.com/94104072/142997374-153abdf3-ffef-4bc7-b401-a2af4cc95d36.jpg)
 ## Трудовой опыт:
 
 ## Практика:
