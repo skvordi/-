@@ -29,7 +29,8 @@ dianaskvortsova0@gmail.com
 ![2](https://user-images.githubusercontent.com/94104072/142999333-4de6b7cf-82c1-4bfb-b1a2-7f2e243680e6.jpg)
 ![3](https://user-images.githubusercontent.com/94104072/142999350-e739f05a-7eaa-4ba6-9a05-fa0f18bc1fa6.jpg)
 ![4](https://user-images.githubusercontent.com/94104072/143002260-c8e7379a-c79c-4aa0-b678-68780ef16921.png)
-![5](https://user-images.githubusercontent.com/94104072/143002409-537cbe78-fdf9-4620-935b-5933d6a1f39e.png)
+![5](https://user-images.githubusercontent.com/94104072/143002691-dc588d79-cc0a-497f-9f26-1a70f646ad88.png)
+
 
 
 
