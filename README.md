@@ -8,8 +8,7 @@
 ### E-mail:
 dianaskvortsova0@gmail.com
 ### Социальные сети
-[VK.com](https://vk.com/anananas11)
-***
+[VK.com](https://vk.com/anananas11)<br>
 [instagram.com](https://vk.com/away.php?utf=1&to=https%3A%2F%2Finstagram.com%2Fd_skvr%3Futm_medium%3Dcopy_link)
 ## Сфера профессиональных интересов: 
 1. Разработка мобильных приложений.
