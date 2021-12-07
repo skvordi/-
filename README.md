@@ -31,6 +31,8 @@ dianaskvortsova0@gmail.com
 ![3](https://user-images.githubusercontent.com/94104072/143671479-67e9538e-f767-4d2c-b2bc-b38c8870d3ca.jpg)
 ![4](https://user-images.githubusercontent.com/94104072/143002260-c8e7379a-c79c-4aa0-b678-68780ef16921.png)
 ![5](https://user-images.githubusercontent.com/94104072/143002691-dc588d79-cc0a-497f-9f26-1a70f646ad88.png)
+![6](https://user-images.githubusercontent.com/94104072/145085073-dfde2bb1-5d2c-46d5-b972-0a90105d4a91.jpg)
+
 
 
 
