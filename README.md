@@ -26,12 +26,12 @@ dianaskvortsova0@gmail.com
  
 
 ## Достижения:
-![1](https://user-images.githubusercontent.com/94104072/142999304-1225e09a-a492-45a5-a5dc-5f61f474ae44.jpg)
-![2](https://user-images.githubusercontent.com/94104072/142999333-4de6b7cf-82c1-4bfb-b1a2-7f2e243680e6.jpg)
-![3](https://user-images.githubusercontent.com/94104072/143671479-67e9538e-f767-4d2c-b2bc-b38c8870d3ca.jpg)
-![4](https://user-images.githubusercontent.com/94104072/143002260-c8e7379a-c79c-4aa0-b678-68780ef16921.png)
-![5](https://user-images.githubusercontent.com/94104072/143002691-dc588d79-cc0a-497f-9f26-1a70f646ad88.png)
-![6](https://user-images.githubusercontent.com/94104072/145085073-dfde2bb1-5d2c-46d5-b972-0a90105d4a91.jpg)
+![1](https://user-images.githubusercontent.com/94104072/143002260-c8e7379a-c79c-4aa0-b678-68780ef16921.png)
+![2](https://user-images.githubusercontent.com/94104072/143002691-dc588d79-cc0a-497f-9f26-1a70f646ad88.png)
+![3](https://user-images.githubusercontent.com/94104072/145085073-dfde2bb1-5d2c-46d5-b972-0a90105d4a91.jpg)
+![4](https://user-images.githubusercontent.com/94104072/142999304-1225e09a-a492-45a5-a5dc-5f61f474ae44.jpg)
+![5](https://user-images.githubusercontent.com/94104072/142999333-4de6b7cf-82c1-4bfb-b1a2-7f2e243680e6.jpg)
+![6](https://user-images.githubusercontent.com/94104072/143671479-67e9538e-f767-4d2c-b2bc-b38c8870d3ca.jpg)
 
 
 
