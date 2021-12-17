@@ -35,12 +35,6 @@ dianaskvortsova0@gmail.com
 
 
 
-
-
-
-
-
-## Трудовой опыт:
  
 
 
